@@ -53,6 +53,6 @@
 
 ## 📫 Connect With Me
 
-[LinkedIn](https://www.linkedin.com/in/sanjay-ganesan-75871924a/) • [Portfolio](https://portfolio-omega-orpin-53.vercel.app/) • sanjayganesan016.com
+[LinkedIn](https://www.linkedin.com/in/sanjay-ganesan-75871924a/) • [Portfolio](https://portfolio-omega-orpin-53.vercel.app/) • sanjayganesan016@gmail.com
 
 </div>
